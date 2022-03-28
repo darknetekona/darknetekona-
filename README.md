@@ -1,0 +1,2 @@
+# darknetekona-
+we've worked so hard with collaborations with top brands on the darknet community  putting an ads free community for our users and calling on the inteire population to join our community for a more reliable exposure and convin ability to explore,  learn and teach tor , and/or blockchain related contents without fear of any kind  this community was created specifically for hackers,  tor users and anonymous businesses alike  for more  join https://darknetekona.com 
